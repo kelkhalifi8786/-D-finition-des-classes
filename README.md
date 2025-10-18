@@ -1,1 +1,2 @@
-<img width="824" height="377" alt="Capture d'écran 2025-05-30 173746" src="https://github.com/user-attachments/assets/a88816bb-207f-45d6-a116-b541e2ce39c8" />
+
+<img width="1579" height="848" alt="Capture d'écran 2025-10-18 163403" src="https://github.com/user-attachments/assets/30097fc2-7cc6-4863-9cff-0345cdf1e53f" />
